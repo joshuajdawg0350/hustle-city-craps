@@ -11,4 +11,4 @@ Developers: list your game for $19.99 one-time (paid only after it passes screen
 
 No ads. We never sell your information.
 
-© J-Dawgs Industries
+© J-Dawgs Industries LLC
